@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mrceloalmeida
-- 👀 I’m interested in Cumputer, music, games and animes.
+- 👀 I’m interested in Computing, music, games and animes.
 - 🌱 I’m currently learning Cybersecurity
 - 💞️ I’m looking to collaborate on I'm married
 - 📫 How to reach me  marcelodealmeida@outlook.com
